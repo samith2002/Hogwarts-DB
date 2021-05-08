@@ -16,6 +16,14 @@ Screen Shots 👇 :
 ![Capture2](https://user-images.githubusercontent.com/65825065/117553457-68bce380-b06f-11eb-9323-e4dde0b99ba9.PNG)
 
 
+![Capture3](https://user-images.githubusercontent.com/65825065/117553560-eed92a00-b06f-11eb-837b-f3bfc6f4a383.PNG)
+
+
+
+![Capture4](https://user-images.githubusercontent.com/65825065/117553585-0ca68f00-b070-11eb-9f61-916c99719738.PNG)
+
+
+
 
 ![Capture5](https://user-images.githubusercontent.com/65825065/117553487-89853900-b06f-11eb-9e87-dec80e63d8a6.PNG)
 
